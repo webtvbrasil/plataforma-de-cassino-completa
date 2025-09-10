@@ -33,11 +33,11 @@ And the best part: when you purchase the source code, you get 90 days of free su
 
 Contato Oficial:
 
-https://wa.me/5531993753172
+https://wa.me/5521997009030
 
 Instagram:
 
-https://www.instagram.com/venix.app/
+https://www.instagram.com/lendobem.app/
 
 Site: 
 
